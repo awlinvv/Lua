@@ -12,7 +12,7 @@
 - [x] FREE
 
 **__JOIN__**
-* https://discord.gg/wzWGjeaRwP
+* https://discord.gg/rayx
 * https://www.roblox.com/groups/12271076
 
 **__SCRIPT__**
